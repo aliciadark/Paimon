@@ -1,2 +1,2 @@
-<a><img src="https://media3.giphy.com/media/11lxCeKo6cHkJy/giphy.gif" width=600></a>
+<a><img src="https://telegra.ph/file/c45f0041320a99d55a610.gif" width=1000></a>
 
