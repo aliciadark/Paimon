@@ -2,4 +2,4 @@
 
 if you wanna use Paimon 💕 you have to be me fren or someone i know personally 👀👀🫰.
  
-contact [Alícia](t.me/eightbituwu)🫰
+contact [Alícia](https://t.me/eightbituwu)🫰
